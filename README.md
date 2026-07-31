@@ -8,6 +8,6 @@
 
 <details>
 <summary> ᵐᵒᵒᵗˢ </summary><br>
-[cup](https://github.com/pawfectt) [coal](https://github.com/coal-irl) wip
+ok wipwip
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EEA5F4&interchange=false&profanity=false&hide_remaster=false&bar_color=d662be&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
