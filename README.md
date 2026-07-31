@@ -10,4 +10,9 @@
 
 <details>
 <summary> ᵐᵒᵒᵗˢ </summary><br>
-wip
+
+go    　fllw    　them   　   　^ ω ^   !
+
+[cup :3](https://github.com/pawfectt)    　[coal](https://github.com/coal-irl)    　[yekita](https://github.com/ppawncakezz)   　 [austin](https://github.com/llauvey)    　[dozy](https://github.com/OlgaSinxer)
+
+[maow](https://github.com/VArtfultrust)    　[nan](https://github.com/Ilove-him)   　 [crumb](https://github.com/cupt6ast)    　[shelly](https://github.com/Shellzyfossilzianz)    　[spoke](https://github.com/spokeispeak)
