@@ -21,11 +21,11 @@ go    　fllw    　them   　   　^ ω ^   !
 $\text{\color{#3482DB} they / neu terms preferred. any is ok (except it / neos) }$
    
 ######
-$\text{\color{#3482DB}im 14. i hide and block freely ! block me if i bother u. }$
+$\text{\color{#3482DB}im 14yo. i hide /block freely ! block me if i bother u. }$
 
 $\text{\color{#3482DB}cuds always welcome unl dni stated in name or with moots}$
 
-$\text{\color{#3482DB}i dont supp qw*l. btw if u do and still play her games dni pls. }$
+$\text{\color{#3482DB}i dont supp qw*l. btw if u do / still play her games dni pls. }$
 
 $\text{\color{#3482DB} IV*NDREW DNI DNI DNI DNI DNI. fandom iwecuf / dniuid. }$
 
