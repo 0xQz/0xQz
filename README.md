@@ -25,7 +25,7 @@ $\text{\color{#3482DB}im 14yo. i hide /block freely ! block me if i bother u. }$
 
 $\text{\color{#3482DB}cuds always welcome unl dni stated in name or with moots}$
 
-$\text{\color{#3482DB}im offtab & afk like most of the time so w2i always.}$
+$\text{\color{#3482DB}im offtab / afk like most of the time so w2i always.}$
 
 $\text{\color{#3482DB}i dont supp qw*l. btw if u do / still play her games dni pls. }$
 
