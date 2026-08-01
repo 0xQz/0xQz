@@ -17,11 +17,7 @@ $\text{\color{#EEA5F4}go}$    　 $\text{\color{#EEA5F4}check}$    　 $\text{\c
 
 </details>
 <details>
-<summary> $\text{\color{#EEA5F4} basic info}$ </summary><br>
-$\text{\color{#3482DB} they / neu terms preferred. any is ok (except it / neos) }$
-   
-######
-$\text{\color{#3482DB}im 14yo. i hide /block freely ! block me if i bother u. }$
+<summary> $\text{\color{#EEA5F4} pt info}$ </summary><br>
 
 $\text{\color{#3482DB}cuds always welcome unl dni stated in name or with moots}$
 
@@ -31,7 +27,7 @@ $\text{\color{#3482DB}i dont supp qw*l. btw if u do / still play her games dni p
 
 $\text{\color{#3482DB} IV*NDREW DNI DNI DNI DNI DNI. fandom iwecuf / dniuid. }$
 
-$\text{\color{#EEA5F4} consider checking out my rentry / prns page for more info / dni !}$
+$\text{\color{#EEA5F4} consider checking out my rentry / prns page for basic info / dni !}$
 </details>
    
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EEA5F4&interchange=false&profanity=false&hide_remaster=false&bar_color=d662be&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
