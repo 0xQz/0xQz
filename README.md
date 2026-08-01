@@ -9,7 +9,7 @@
 <details>
 <summary> $\text{\color{#EEA5F4} moots}$ </summary><br>
 
-go    　fllw    　them   　   　^ ω ^   !
+$\text{\color{#EEA5F4}go}$    　 $\text{\color{#EEA5F4}check}$    　 $\text{\color{#EEA5F4}their}$    　 $\text{\color{#EEA5F4}profile}$   　    $\text{\color{#FFFFFF}ㆍωㆍ   !}$
 
 [cup :3](https://github.com/pawfectt)    　[coal](https://github.com/coal-irl)    　[yekita](https://github.com/ppawncakezz)   　 [austin](https://github.com/llauvey)    　[dozy](https://github.com/OlgaSinxer)
 
