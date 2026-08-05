@@ -21,7 +21,9 @@ $\text{\color{#EEA5F4}go}$    　 $\text{\color{#EEA5F4}check}$    　 $\text{\c
 
 $\text{\color{#3482DB}cuds always welcome unl dni stated in name or with moots}$
 
-$\text{\color{#3482DB}im offtab / afk like most of the time so w2i(uf) always.}$
+$\text{\color{#3482DB}im offtab / afk like most of the time so w2i(uf) always ok ?}$
+
+$\text{\color{#3482DB}if i have u blocked / hidden dni and dont ask, i have my reasons.}$
 
 $\text{\color{#EEA5F4} consider checking out my rentry / prns page for basic info / dni !}$
 </details>
