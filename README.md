@@ -2,9 +2,9 @@
       
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=cakes+♡&labelColor=ffffff&color=2D85FC)
 
-[fluffˡᵉ](https://fluffle.cc/c-utesy)   　[新ᵇᵒᵒᵏ](https://c-utesy.atabook.org)   　[Prnsᵖᵃᵍᵉ](https://en.pronouns.page/@c.utesy)   　   　       　    　    　 $\text{\color{#EEA5F4} ໒꒱ྀ }$
+[fluffˡᵉ](https://fluffle.cc/skipthetutorial)      　[新ᵇᵒᵒᵏ](https://c-utesy.atabook.org)   　[Prnsᵖᵃᵍᵉ](https://en.pronouns.page/@c.utesy)   　   　       　    　    　 $\text{\color{#EEA5F4} ໒꒱ྀ }$
 
-<img width="300" alt="Image" src="https://github.com/user-attachments/assets/4cc0b83e-e2d2-4192-bee4-cd6379e2031c" />
+<img width="300" alt="Image" src="https://github.com/user-attachments/assets/4cc0b83e-e2d2-4192-bee4-   cd6379e2031c" />
 
 <details>
 <summary> $\text{\color{#EEA5F4} moots}$ </summary><br>
