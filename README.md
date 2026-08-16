@@ -21,11 +21,13 @@ $\text{\color{#EEA5F4}go}$    　 $\text{\color{#EEA5F4}check}$    　 $\text{\c
 
 $\text{\color{#3482DB}cuds always welcome unl dni stated in name or with moots}$
 
+$\text{\color{#EEA5F4}dont copy / inspo my skins unl were friends and i gave u permission.}$
+
 $\text{\color{#3482DB}im offtab / afk like most of the time so w2i(uf) always ok ?}$
 
 $\text{\color{#3482DB}if i have u blocked / hidden dni and dont ask, i have my reasons.}$
 
-$\text{\color{#EEA5F4} consider checking out my rentry / prns page for basic info / dni !}$
+$\text{\color{#EEA5F4} consider checking out my fluffle / prns page for basic info / dni !}$
 </details>
    
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EEA5F4&interchange=false&profanity=false&hide_remaster=false&bar_color=d662be&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
