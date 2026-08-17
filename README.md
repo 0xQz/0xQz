@@ -4,7 +4,7 @@
 
 ###
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=Wifies&labelColor=ffffff&color=000000)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=Wifies&labelColor=ffffff&color=707070)
 
 [Fluffle](https://fluffle.cc/ltzskeet)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns page](https://en.pronouns.page/@c.utesy)
 
