@@ -19,6 +19,8 @@
 <details>
 <summary> pt info     　    !</summary><br>
 
+pt players iwec unl i know u
+
 cuds always welcome unl dni stated in name or with moots
 
 dont copy / inspo my skins unl were friends and i gave u perms
