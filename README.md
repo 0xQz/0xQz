@@ -27,9 +27,8 @@ dont copy / inspo my skins unl were friends and i gave u perms
 
 im offtab / afk like most of the time so w2i(uf) always ok ?
 
-if i have u blocked / hidden dni and dont ask, i have my reasons.
+if i have u blocked / hidden iwec or dniuid. i have my reasons.
 
-dni
 </details>
    
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EEA5F4&interchange=false&profanity=false&hide_remaster=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
