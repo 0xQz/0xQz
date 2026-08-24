@@ -9,7 +9,7 @@
 [Fluffle](https://fluffle.cc/ltzskeet)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns page](https://en.pronouns.page/@c.utesy)    　 [art cred](https://x.com/furaisette/status/2032895754382287324?s=20)
 
 <details>
-<summary> cuties       ㆍωㆍ</summary><br>
+<summary> cuties </summary><br>
 
 [cup :3](https://github.com/pawfectt)    　[coal](https://github.com/coal-irl)    　[yekita](https://github.com/ppawncakezz)   　 [austin](https://github.com/llauvey)    　[dozy](https://github.com/OlgaSinxer)
 
@@ -17,7 +17,7 @@
 
 </details>
 <details>
-<summary> pt info     　    !</summary><br>
+<summary> pt info </summary><br>
 
 pt players iwec unl i know u
 
@@ -30,7 +30,15 @@ im offtab / afk like most of the time so w2i(uf) always ok ?
 if i have u blocked / hidden iwec or dniuid. i have my reasons.
 
 </details>
-   
+
+</details>
+<details>
+<summary> ㆍωㆍ </summary><br>
+
+<img width="336" height="107" alt="Image" src="https://github.com/user-attachments/assets/835052a6-f28b-46da-a1bf-82cab37640b1" />
+
+</details>
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EEA5F4&interchange=false&profanity=false&hide_remaster=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
 
 ###
