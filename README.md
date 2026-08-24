@@ -11,7 +11,7 @@
 <details>
 <summary> cuties </summary><br>
 
-[cup :3](https://github.com/pawfectt)    　[coal](https://github.com/coal-irl)    　[yekita](https://github.com/ppawncakezz)   　 [austin](https://github.com/llauvey)    　[dozy](https://github.com/OlgaSinxer)
+[cup :3](https://github.com/pawfectt)    　[coal](https://github.com/guillotinaa)    　[yekita](https://github.com/ppawncakezz)   　 [austin](https://github.com/llauvey)    　[dozy](https://github.com/OlgaSinxer)
 
 [maow](https://github.com/VArtfultrust)    　[nan](https://github.com/Ilove-him)   　 [crumb](https://github.com/cupt6ast)    　[spoke](https://github.com/spokeispeak)
 
