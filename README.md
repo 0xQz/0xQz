@@ -27,7 +27,7 @@ dont copy / inspo my skins unl were friends and i gave u perms
 
 im offtab / afk like most of the time so w2i(uf) always ok ?
 
-if i have u blocked / hidden iwec or dniuid. i have my reasons.
+i block / hide if i dont like u + i have my reasons ^_^
 
 </details>
 
