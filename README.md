@@ -32,15 +32,15 @@ i block / hide if i dont like u + i block freely
 <details>
 <summary> dni </summary><br>
 
-if u use tut / pinterest skins without creds (or just straight up copied them)
+if u use tut / pinterest skins without creds (or just straight up copied them).
 
 “high” insert char name skin
 
-bad things / ddlc cosplayers (dni if u make axe / sayoris death jokes)
-
 u dont like me / any of my friends.
 
+“fem anatomy btw” i dont give a fuck and ITS A PONY GAME 😭😭.
 
+problematic ppl in gen (copy, break others boundaries, ect).
 
 </details>
 
