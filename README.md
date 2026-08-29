@@ -34,7 +34,7 @@ i block / hide if i dont like u + i block freely
 
 if u use tut / pinterest skins without creds (or just straight up copied them).
 
-“high” insert char name skin
+“high” insert char name skin / “irl” skin
 
 u dont like me / any of my friends.
 
