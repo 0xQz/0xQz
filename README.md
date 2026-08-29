@@ -30,7 +30,7 @@ im offtab / afk like most of the time so w2i(uf) always ok ?
 i block / hide if i dont like u + i block freely
 
 <details>
-<summary> dni </summary><br>
+<summary> dni(uid) / iwec </summary><br>
 
 if u use tut / pinterest skins without creds (or just straight up copied them).
 
