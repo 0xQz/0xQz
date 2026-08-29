@@ -19,15 +19,15 @@
 <details>
 <summary> pt info </summary><br>
 
-pt players iwec unl i know u
+pt players iwc unl i know u
 
-cuds always welcome unl dni stated in name or with moots
+cuds always enc unl dni stated in name or with moots
 
-dont copy / inspo my skins unl were friends and i gave u perms
+dont copy / inspo my skins unl were friends + i gave u perms
 
 im offtab / afk like most of the time so w2i(uf) always ok ?
 
-i block / hide if i dont like u + i have my reasons ^_^
+i block / hide if i dont like u + i block freely
 
 </details>
 
