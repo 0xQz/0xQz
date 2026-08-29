@@ -29,6 +29,19 @@ im offtab / afk like most of the time so w2i(uf) always ok ?
 
 i block / hide if i dont like u + i block freely
 
+<details>
+<summary> dni </summary><br>
+
+if u use tut / pinterest skins without creds (or just straight up copied them)
+
+“high” insert char name skin
+
+bad things / ddlc cosplayers (dni if u make axe / sayoris death jokes)
+
+u dont like me / any of my friends.
+
+
+
 </details>
 
 </details>
