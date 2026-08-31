@@ -19,7 +19,7 @@
 <details>
 <summary> pt info </summary><br>
 
-pt players iwc unl i know u
+pt players iwec unl i know u
 
 cuds always enc unl dni stated in name or with moots
 
@@ -27,7 +27,7 @@ dont copy / inspo my skins unl were friends + i gave u perms
 
 im offtab / afk like most of the time so w2i(uf) always ok ?
 
-i block / hide if i dont like u + i block freely
+i block / hide if i dont like u + i block freely. Dont take it personal thank u
 
 <details>
 <summary> dni(uid) / iwec </summary><br>
