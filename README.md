@@ -11,9 +11,9 @@
 <details>
 <summary> cuties </summary><br>
 
-[kitt :3](https://github.com/pawfectt)    　[coal](https://github.com/guillotinaa)    　[yekita](https://github.com/ppawncakezz)   　 [dozy](https://github.com/OlgaSinxer)
+[kitt :3](https://github.com/pawfectt)    　[coal](https://github.com/guillotinaa)    　[yekita](https://github.com/ppawncakezz)   　 [gatita](https://github.com/Gatita-here)    　[crumb](https://github.com/cupt6ast)
 
-[maow](https://github.com/VArtfultrust)    　[nan](https://github.com/Ilove-him)   　 [crumb](https://github.com/cupt6ast)    　[spoke](https://github.com/spokeispeak)
+[/guy i hate](https://github.com/VArtfultrust)    　[/nan](https://github.com/Ilove-him)   　 [/dozy](https://github.com/OlgaSinxer)    　[spoke](https://github.com/spokeispeak)
 
 </details>
 <details>
