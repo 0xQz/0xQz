@@ -8,6 +8,8 @@
 
 [Fluffle](https://fluffle.cc/flamefraqs)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns page](https://en.pronouns.page/@c.utesy)    　 [art cred](https://x.com/furaisette/status/2032895754382287324?s=20)
 
+no inspo unless friends + i gave u perms.
+
 <details>
 <summary> cuties </summary><br>
 
