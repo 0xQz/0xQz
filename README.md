@@ -6,7 +6,7 @@
 
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=spyglass&labelColor=ffffff&color=707070)
 
-[Fluffle](https://fluffle.cc/flamefraqs)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns page](https://en.pronouns.page/@c.utesy)    　 [art cred](https://x.com/furaisette/status/2032895754382287324?s=20)
+[Info](https://fluffle.cc/Molt)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns page](https://en.pronouns.page/@c.utesy)    　 [art cred](https://x.com/furaisette/status/2032895754382287324?s=20)
 
 no inspo unless friends + i gave u perms.
 
