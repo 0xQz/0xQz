@@ -1,70 +1,62 @@
    <div align="center">
       
-<img width="300" alt="Image" src="https://github.com/user-attachments/assets/ff8f4124-b5fd-4cb3-9f54-f96e209daf38" />
+![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=meow&labelColor=ffffff&color=CBDDE5)
+
+<img width="210" alt="Image" src="https://github.com/user-attachments/assets/03dba7ef-a6c7-4913-943d-d4124d569a74" />
 
 ###
+[Info](https://fluffle.cc/sunshiner)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns](https://pronouns.cc/@voiding)
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=spyglass&labelColor=ffffff&color=707070)
-
-[Info](https://fluffle.cc/sunshiner)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns](https://pronouns.cc/@voiding)    　 [art cred](https://x.com/furaisette/status/2032895754382287324?s=20)
-
-no inspo unless friends + i gave u perms.
+<img align=“left” width="199" alt="Image" src="https://github.com/user-attachments/assets/8e63fc76-52fc-4b4d-8c36-50f339ad48e1" />
 
 <details>
-<summary> cuties </summary><br>
+<summary> $${\color{#F7C9E1}\text{ cuties }}$$ </summary><br>
 
-[***kitty***](https://github.com/pawfectt)    　[coal](https://github.com/coalcarolynne)    　[yekita](https://github.com/ppawncakezz)   　 [gatita](https://github.com/Gatita-here)    　[crumb](https://github.com/cupt6ast)
+[***maow***](https://github.com/VArtfultrust) ⁠ 　 [***nan***](https://github.com/Ilove-him) ⁠ 　 [***dozy***](https://github.com/OlgaSinxer)
 
-[***maow***](https://github.com/VArtfultrust)    　[***nan***](https://github.com/Ilove-him)   　 [***dozy***](https://github.com/OlgaSinxer)    　[spoke](https://github.com/spokeispeak)    　 [shellzy](https://github.com/ShellzyFossilzianz)
+[***kitty***](https://github.com/pawfectt) ⁠ 　 [coal](https://github.com/coalcarolynne) ⁠ 　 [yekita](https://github.com/ppawncakezz) ⁠ 　 [gatita](https://github.com/Gatita-here) ⁠ 　 [crumb](https://github.com/cupt6ast) ⁠ 　 [shellzy](https://github.com/ShellzyFossilzianz) ⁠ 　 [spoke](https://github.com/spokeispeak)
 
 </details>
 <details>
-<summary> pt info </summary><br>
+<summary> $\text{\color{#F7C9E1} pt info }$ </summary><br>
 
 pt players iwec unl i know u
 
-cuds always enc unl dni stated in name or with moots
+cuds always enc unl with moots
 
 dont copy / inspo my skins unl were friends + i gave u perms
 
 im offtab / afk like most of the time so w2i(uf) always ok ?
 
-i block / hide if i dont like u + i block freely. Dont take it personal thank u
+i block / hide if i dont like u + i block freely. Dont take it personal
 
+###
 <details>
-<summary> dni(uid) / iwec </summary><br>
+<summary> $\text{\color{#CBDDE5} dni }$ </summary><br>
 
-if u use tut / pinterest skins without creds (or just straight up copied them).
+if u use tut / pinterest skins without creds.
 
 “high” insert char name skin / “irl” skin
 
 u dont like me / any of my friends.
 
-“fem anatomy btw” i dont give a fuck and ITS A PONY GAME 😭😭.
-
-problematic ppl in gen (copy, break others boundaries, ect).
+“fem anatomy btw” i dont give a fuck ITS A PONY GAME 🫩🫩
 
 </details>
 
 </details>
 <details>
-<summary> ㆍωㆍ </summary><br>
+<summary> $\text{\color{#F7C9E1} ㆍωㆍ }$ </summary><br>
 
-<img width="336" alt="Image" src="https://github.com/user-attachments/assets/835052a6-f28b-46da-a1bf-82cab37640b1" />
+<img width="200" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
-####
-
-<img width="336" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
-
-####
-
-<img width="367" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
-
-i really love my friends ok ? ok
-
-</details>
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=natemoo-re&show_offline=false&background_color=EEA5F4&interchange=false&profanity=false&hide_remaster=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
+######
+<img width="360" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 
 ###
-<img width="300" alt="Image" src="https://github.com/user-attachments/assets/86f57bea-a60e-4467-bf7f-edec274fd438" />
+
+<img width="300" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
+
+i really love u guys ok? ok
+
+</details>
