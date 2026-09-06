@@ -50,7 +50,9 @@ problematic ppl in gen (copy, break others boundaries, ect).
 <details>
 <summary> ㆍωㆍ </summary><br>
 
-<img width="336" height="107" alt="Image" src="https://github.com/user-attachments/assets/835052a6-f28b-46da-a1bf-82cab37640b1" />
+<img width="336" alt="Image" src="https://github.com/user-attachments/assets/835052a6-f28b-46da-a1bf-82cab37640b1" />
+
+<img width="360" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 
 </details>
 
