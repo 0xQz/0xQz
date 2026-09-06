@@ -54,11 +54,11 @@ problematic ppl in gen (copy, break others boundaries, ect).
 
 ####
 
-<img width="360" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
+<img width="336" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 
 ####
 
-<img width="470" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
+<img width="367" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
 
 i really love my friends ok ? ok
 
